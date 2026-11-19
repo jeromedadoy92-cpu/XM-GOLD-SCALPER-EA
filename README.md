@@ -1,0 +1,1 @@
+# XM-GOLD-SCALPER-EA
